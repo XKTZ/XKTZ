@@ -1,1 +1,1 @@
-Hi I am Yidi Chen. A grade 12 student.
+Hi I am Yidi Chen. A year 1 student in University of Waterloo.
